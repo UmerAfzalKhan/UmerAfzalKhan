@@ -8,6 +8,6 @@
   
 - Speakes English and Urdu
   
-- ⚡Fun fact I love Chai, Food & Traveling
+- ⚡Fun fact I love Chai, Food, Shopaholic & Travelling
 
   
