@@ -1,6 +1,6 @@
 - Hello 👋 I’m Umer;
 
-- I'm a fifth semester computer science student I’m passionate about solving real-world problems and always eager to learn new technologies
+- I'm a final year computer science student I’m passionate about solving real-world problems and always eager to learn new technologies
 
 - BSCS @ NUML
 
